@@ -1,3 +1,3 @@
 nbncsasc
  \dk DC
-kckacckcqwence
+kckacck
